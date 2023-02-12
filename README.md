@@ -1,1 +1,0 @@
-# oryzaaaa.github.io
